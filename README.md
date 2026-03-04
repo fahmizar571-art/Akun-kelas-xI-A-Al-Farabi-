@@ -1,1 +1,0 @@
-# Akun-kelas-xI-A-Al-Farabi-
